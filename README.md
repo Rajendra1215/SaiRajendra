@@ -1,2 +1,0 @@
-# SaiRajendra
-Training 
